@@ -1,0 +1,2 @@
+# SC_302_Documentacion_Amador_Artavia_Gabriel
+Repositorio propio
